@@ -3,3 +3,5 @@
 new next suck my balls
 
 some more text
+
+newfile2
